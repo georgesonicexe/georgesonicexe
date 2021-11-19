@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @georgesonicexe
+- 👀 I’m interested in fixing problems that people have with games,emulators etc.
+- 🌱 I’m currently learning nothing.
+- 💞️ I’m looking to collaborate on no one.
+- 📫 How to reach me:horchidanalexandru@gmail.com
+- I'm a Sonic fan also,i want to learn how to make sonic fan games.
+- Goodbye and have a good day!
